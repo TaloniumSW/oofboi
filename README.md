@@ -1,1 +1,1 @@
-Welp, this is The OofBoi CP Repo (CyberPatriot not that other word i: ).
+Welp, this is The OofBoi CyPat Repo
